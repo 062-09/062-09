@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @062-09
-- 👀 I’m interested in MUSIC.
-- 🌱 I’m currently learning music production/theory
+- 🎧 I’m interested in MUSIC.
+- 📚 I’m currently learning music production/theory and a bit of python before I graduate highschool
 - 💞️ I’m looking to collaborate on... nothing... I'm working solo cuz I'm hella inconsistent w/ everything
 - 📫 How to reach me... you will never be able to.
 
