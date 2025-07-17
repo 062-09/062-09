@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @062-09
-- 👀 I’m interested in ... Hockey, pen spinning, python sometimes and space
-- 🌱 I’m currently learning ... middle school stuff and python 3
-- 💞️ I’m looking to collaborate on ... idk
-- 📫 How to reach me ... you will never be able to..
+- 👀 I’m interested in MUSIC.
+- 🌱 I’m currently learning music production/theory
+- 💞️ I’m looking to collaborate on... nothing... I'm working solo cuz I'm hella inconsistent w/ everything
+- 📫 How to reach me... you will never be able to.
 
 <!---
 062-09/062-09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
